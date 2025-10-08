@@ -1,2 +1,3 @@
 # divorce
 We are your local Central Coast divorce lawyer. A “divorce” is a straightforward legal process. However, once a divorce order comes into effect, and you have not reached a financial settlement or property settlement, there will be a time limit on applying for a court-ordered outcome.
+When facing the challenges of separation or divorce, having the right legal guidance makes all the difference. Many families choose CopperTree Family Law [ https://www.coppertreefamilylaw.com.au/divorce/] because their team of central coast family lawers understands the emotional and financial pressures involved. They provide support with parenting arrangements, property settlements, and tailored advice to help clients move forward with confidence.
